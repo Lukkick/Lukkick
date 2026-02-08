@@ -14,11 +14,20 @@ Throughout my studies i was able to build a strong foundation, working with Game
 
 
 ### Take-Out Rush 
+🍕 Grab your Take Out [here](https://sorayumi.itch.io/take-out-rush) 🍕
+
 
 ### Kodamask
+👹 Protect the forest and choose your [Mask](https://globalgamejam.org/games/2026/kodamask-6) 👹
+
 
 ### Rememberance
+👑 Can you find the [memories](https://rememberance-ew.itch.io/rememberance) to help you defeat the curse and find your family 👑 
+
 
 ### Waking Giants
+😀 Go on a little hike but beware. Giants are sleeping right below and we dont want to [wake](https://alisonmaria.itch.io/waking-giants) them 😀
+
 
 ### Aya
+🦊 Can you find a way to save your [family](https://cabardi.itch.io/aya) from the humans 🦊
